@@ -6,7 +6,16 @@
 
 ![image](https://64.media.tumblr.com/124d0890ed0f86b7d5a2b527b193e13f/317238c95e274d93-71/s250x400/0cf5e107f502cc1831dbfa0867733c9d30b60430.gifv)
 
-$${\color{#FFB6C5}\textsf{" Do you need any help from me ?  "}}$$ </h6> 
+
+$${\color{#E28590}\textsf{**𝐯𝐞𝐫𝐲 𝐬𝐡𝐨𝐫𝐭 𝐢𝐧𝐟𝐨𝐫𝐦𝐚𝐭𝐢𝐨𝐧  : 3**}}$$  </h6>
+
+$${\color{#E28590}\textsf{call me nattrie ,, im fine with any pronouns but i use she/any for main}}$$ </h6> 
+
+$${\color{#E28590}\textsf{im 16 (actually, its not that time yet, but im too lazy to fix it LOL)}}$$ </h6> 
+
+$${\color{#E28590}\textsf{hishi akebono fiction kin , doubles are okay!}}$$ </h6> 
+
+![image](https://64.media.tumblr.com/ba3821ee9c6230823e5e03a540e712a2/b602c344fcaaf19f-ed/s75x75_c1/85adc55ec1b49f46de2279912551ac95457e5ab7.gifv)
 
 [main github](https://github.com/nattrie)⠀ ⠀ ![image](https://64.media.tumblr.com/e3ba5ba80abc84fa9984b2fee84d58e6/a89d4e00fa19cadc-be/s75x75_c1/629ca6fddab06cee9f3a31b4a2ed2102ad01c601.gifv)⠀ ⠀ [qna ata](https://2ndnattries.atabook.org/)
 
